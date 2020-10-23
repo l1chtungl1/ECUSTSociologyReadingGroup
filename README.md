@@ -1,2 +1,2 @@
 # ECUSTSociologyReadingGroup
-Sociology Reading Groups from Fengxian Campus, ECUST
+Sociology Reading Groups from Fengxian Campus, ECUST, Shanghai
